@@ -33,5 +33,4 @@ ________________________________________________________________________________
 
 
 
-Any related query mail me at  "azadrajeev1123@gmail.com"
-Thank you
+
